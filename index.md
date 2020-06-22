@@ -12,4 +12,4 @@ His true identity is that of a spy spent by Sadali to prepare for the inevitable
 * Is fast
 * Likes crows
 
-> ...
+> He doesn't like to talk.
