@@ -13,3 +13,5 @@ His true identity is that of a spy spent by Sadali to prepare for the inevitable
 * Steals
 
 > He doesn't talk at all.
+
+<img src="https://i.pinimg.com/564x/89/34/9b/89349bf208fcb8523bacfa767b8c4038.jpg"/>
